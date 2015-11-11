@@ -1,1 +1,1 @@
-# muhammedyusufkocer1.github.io
+# http://muhammedyusufkocer1.github.io
